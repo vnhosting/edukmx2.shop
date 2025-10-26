@@ -1,0 +1,1 @@
+# edukmx2.shop
